@@ -1,0 +1,1 @@
+# Project-New-AI-Inteligence-Systems-design-Architecture-Research-Fully-Structured.
